@@ -1,0 +1,2 @@
+# gaming_asset_ownership
+gaming_asset_ownership
